@@ -1,0 +1,1 @@
+# search-of-the-stars-privacy-policy
